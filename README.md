@@ -1,5 +1,5 @@
-### Hi there it's BilnoiGamers 👋
-### - ⚡ Fun fact:
+### Hi there it's E 👋
+### - ⚡ Fun
 
 <!--
 **BilonGamer/BilonGamer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
